@@ -1,3 +1,3 @@
 Assignment 2
 
-Look at Assignment 2 for more details
+Look at Assignment 2 pdf for more details
